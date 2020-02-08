@@ -6,7 +6,7 @@
 
 住所 東京都
 
-Eメール narufrank.okubo@gmail.com　
+Eメール mail@naruokubo.jp　
 
 生年月日 1970年9月18日（満49歳）
 
